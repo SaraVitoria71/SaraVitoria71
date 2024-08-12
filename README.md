@@ -1,16 +1,17 @@
-## Hi there 👋
+## Olá! Seja bem-vindo(a) ao meu perfil 💜 
 
-<!--
-**SaraVitoria71/SaraVitoria71** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é Sara Vitória 
 
-Here are some ideas to get you started:
+- Sou uma artista dedicada, sempre explorando novas formas de expressão e criatividade.
+- Meu interesse por programação adiciona uma dimensão inovadora ao meu trabalho artístico.
+- Transformo ideias em criações impactantes, combinando arte e tecnologia com versatilidade.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+**Com determinação e coragem, cada desafio se transforma em uma oportunidade para vencer e crescer** 🚀🌟
+
+
+![](https://media1.tenor.com/m/Yt6lh4wHEgIAAAAd/anniversary-wishes.gif)
+
+
+
+
+
