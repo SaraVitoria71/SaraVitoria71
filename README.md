@@ -9,7 +9,7 @@ Meu nome é Sara Vitória
 **Com determinação e coragem, cada desafio se transforma em uma oportunidade para vencer e crescer** 🚀🌟
 
 
-![](<iframe src="https://giphy.com/embed/l1TJVLJM0hfnGJjE4t" width="480" height="480" style="" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/gifs/bbcamerica-nature-bbc-america-earthflight-l1TJVLJM0hfnGJjE4t">via GIPHY</a></p>)
+![](<div style="width:100%;height:0;padding-bottom:100%;position:relative;"><iframe src="https://giphy.com/embed/l1TJVLJM0hfnGJjE4t" width="100%" height="100%" style="position:absolute" frameBorder="0" class="giphy-embed" allowFullScreen></iframe></div><p><a href="https://giphy.com/gifs/bbcamerica-nature-bbc-america-earthflight-l1TJVLJM0hfnGJjE4t">via GIPHY</a></p>)
 
 
 
