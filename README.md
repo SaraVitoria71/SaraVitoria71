@@ -9,7 +9,7 @@ Meu nome é Sara Vitória
 **Com determinação e coragem, cada desafio se transforma em uma oportunidade para vencer e crescer** 🚀🌟
 
 
-![](https://tenor.com/view/eagle-sea-fish-caught-hunting-gif-5489888)
+![](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExNmVyYmRuZWZuYThlbHRoOGtnaXlyaGdxcWNsYXlncXJsZnFoaXBnOCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/l1TJVLJM0hfnGJjE4t/giphy.webp)
 
 
 
