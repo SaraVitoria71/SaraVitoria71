@@ -9,7 +9,7 @@ Meu nome é Sara Vitória
 **Com determinação e coragem, cada desafio se transforma em uma oportunidade para vencer e crescer** 🚀🌟
 
 
-![](https://media1.tenor.com/m/Yt6lh4wHEgIAAAAd/anniversary-wishes.gif)
+![](https://giphy.com/gifs/bbcamerica-nature-bbc-america-earthflight-l1TJVLJM0hfnGJjE4t)
 
 
 
